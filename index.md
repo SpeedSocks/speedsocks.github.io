@@ -1,1 +1,1 @@
-speedsocks最新域名：speedsocks.xyz
+ <meta http-equiv="refresh" content="10;url= http://xfbbs.com/ ">
