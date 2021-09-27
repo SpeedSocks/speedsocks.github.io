@@ -1,1 +1,1 @@
- <meta http-equiv="refresh" content="10;url= https://speedsocks.xyz/">
+ <meta http-equiv="refresh" content="0;url= https://speedsocks.xyz/">
